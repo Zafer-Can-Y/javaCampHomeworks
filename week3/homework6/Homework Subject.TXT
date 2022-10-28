@@ -1,0 +1,5 @@
+Aşağıdaki oynatma listesi çok önemli.
+
+İzleyip excel'de siz de uygulayınız.
+
+https://www.youtube.com/watch?v=4U54EVknm2Q&list=PLqG356ExoxZXZQt9edXkCS-_dunCq-bXm
